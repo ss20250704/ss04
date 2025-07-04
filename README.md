@@ -20,4 +20,4 @@
 
 观看时也需要留意隐私和安全问题，合规的平台通常会进行年龄验证，并且有明确的隐私政策，保护你的个人信息不被滥用。通过选择合法且有信誉的平台，你不仅能享受高质量的影片，还能保障设备和信息的安全。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/ss20250704/ss04 ）</span>
